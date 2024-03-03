@@ -10,6 +10,8 @@ I have mastery of Windows 11 and server administration, in addition to knowledge
 
 My mission is to support innovative and secure IT solutions, which add value to businesses and customers. I am passionate about learning new technologies and updating myself on market trends. I seek opportunities to collaborate with dynamic and engaged teams, who share my vision of excellence and quality. 🚀🌟
 
+Português
+
 "👋 Olá, sou um Analista de Infraestrutura de TI Sênior com mais de 10 anos de experiência, especializado em suporte, gerenciamento e solução de problemas de sistemas operacionais, redes e servidores. 🖥️🌐🔧
 
 Em minha última posição em uma fintech líder em soluções de pagamento, contribuí para a implementação, configuração e manutenção de infraestruturas de nuvem, garantindo a segurança, disponibilidade e escalabilidade dos serviços. ☁️🔒
